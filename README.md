@@ -1,2 +1,0 @@
-# Newzofthech
-Newzofthech
